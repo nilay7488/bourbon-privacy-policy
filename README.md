@@ -33,9 +33,9 @@
  ## 4. This Privacy Policy doesn't answer my question. What should I do? 
   
  #### You can reach us by the following methods: 
- - Join our [Support Server](https://discord.gg/JJ3bXjNz2U)
+ - Join our [Support Server](https://discord.gg/RJpgehYR5R)
  on discord 
- - Contact me on discord [discord Server](https://discord.gg/JJ3bXjNz2U) 
+ - Contact me on discord [discord Server](https://discord.gg/RJpgehYR5R ) 
   
  ## 5. How can we delete our entire data? 
   
